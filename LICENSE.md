@@ -1,4 +1,4 @@
-
+secret brookhaven rp Script is the best brookhaven rp Script, featuring auto-sell and auto-collect. Safe and powerful for all your needs.
 
 
 
